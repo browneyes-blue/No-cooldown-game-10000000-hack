@@ -1,0 +1,1 @@
+# No-cooldown-game-10000000-hack
